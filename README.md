@@ -6,7 +6,7 @@
 
 91吃瓜永久地址（需科学⬆️网工具）https://91cg.fun/
 
-91吃瓜TG官方群 https://t.me/a91chigua666/12
+91吃瓜TG官方群 https://t.me/a91chigua/4
 
 加入微信扣扣粉丝群 https://91cg.tv/?path=/qun.html
 
