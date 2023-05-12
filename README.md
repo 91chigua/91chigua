@@ -26,6 +26,6 @@
 
 3.更换浏览器为Alook浏览器, edge浏览器, Chrome浏览器
 
-4.下载蚂蚁加速器：https://ant.huimoer.com/c-8958/a-b4y3r 科学上网工具
+4.下载蚂蚁加速器：https://a1.obqyyh.com/c-8958/a-b4y3r 科学上网工具
 
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
