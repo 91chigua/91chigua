@@ -10,7 +10,7 @@
 
 91吃瓜TG官方群 https://t.me/a91chigua/4
 
-加入微信扣扣粉丝群 https://91cg.ltd/?path=/qun.html
+加入微信扣扣粉丝群 https://91cg.cloud/?path=/qun.html
 
 失联获取最新地址方法1: https://github.com/91chigua
 
