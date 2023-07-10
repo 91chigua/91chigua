@@ -1,6 +1,6 @@
-91吃瓜网 最新地址 👋 (最新更新时间2023-06-27)
+91吃瓜网 最新地址 👋 (最新更新时间2023-07-10)
 
-91吃瓜最新官网 https://91cg.cloud/
+91吃瓜最新官网 https://91cg.win/
 
 91吃瓜备用线路1 https://91cg.app/
 
@@ -10,7 +10,7 @@
 
 91吃瓜TG官方群 https://t.me/a91chigua/4
 
-加入微信扣扣粉丝群 https://91cg.cloud/?path=/qun.html
+加入微信扣扣粉丝群 https://91cg.win/?path=/qun.html
 
 失联获取最新地址方法1: https://github.com/91chigua
 
